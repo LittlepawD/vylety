@@ -2,6 +2,8 @@
 
 Třídenní přechod severní části Krkonoš
 
+[Odkaz na trasu](https://mapy.cz/s/duralajupo)
+
 ## Den 1
 
 **Horní Maršov - Horní Malá Úpa**
